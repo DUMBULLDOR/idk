@@ -1,2 +1,2 @@
-# idk
-yb
+Don't copy my stuff if you do that you are agreeing to pay $100 000 for every single lettered you copyright from me
+And this will be going on for untill the end of times/ unless i let you copy(without you torturing me to let you "willingly" copy my property if i get hurt in anyway mentally physically and socially, or any other way you will not get the right to copy), but it will be with rules. I determine those rules, and only me. no1 can take my soul. make me forget my memory. i have to be fully myself. if anything isn't as it is supposed to be. then my choice or statments are not effective. have a good time :D
